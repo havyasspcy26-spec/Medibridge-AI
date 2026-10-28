@@ -1,1 +1,0 @@
-# Medibridge-AI
